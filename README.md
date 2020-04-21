@@ -1,0 +1,2 @@
+# TASK-0
+STATEMENT OF PURPOSE for Open Domain
